@@ -1,4 +1,4 @@
-# Jensne.hwang-AI-personal-project
+# Jensen.hwang-AI-personal-project
 Jensen Personal Project
 [제목 없음](https://www.notion.so/1bb0c6fd68408039b58ce8c1d9614355?pvs=21)
 
